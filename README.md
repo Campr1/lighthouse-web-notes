@@ -1,0 +1,1 @@
+# Rishard's Notes
